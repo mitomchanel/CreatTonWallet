@@ -1,2 +1,1 @@
-# CreatTonWallet
-Tool Creat Ton Wallet
+https://t.me/mitomchanel
